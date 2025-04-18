@@ -10,7 +10,7 @@ I gathered these IDs with the intention of using and sharing them in the future,
 
 If you'd like to interact or have questions, feel free to join my Discord server:
 
-[System Roblox](https://discord.gg/4QRRmgEHxj)
+[Decal Logger Hub](https://discord.gg/4QRRmgEHxj)
 
 Thank you for your visit and collaboration!
 
@@ -28,6 +28,6 @@ Juntei esses IDs com o objetivo de utilizá-los e compartilhá-los futuramente, 
 
 Caso deseje interagir ou tirar dúvidas, entre no meu servidor do Discord:
 
-[System Roblox](https://discord.gg/4QRRmgEHxj)
+[Decal Logger Hub](https://discord.gg/4QRRmgEHxj)
 
 Agradeço pela sua visita e colaboração!
